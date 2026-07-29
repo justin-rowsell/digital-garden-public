@@ -1,0 +1,2 @@
+Pg. 86 [[The Almanack of Naval]]
+Not in some cosmic, karma kind of way, but I believe deep down we all know who we are. You cannot hide anything from yourself. Your own failures are written within your psyche, and they are obvious to you. If you have too many of these moral shortcomings, you will not respect yourself. the worst outcome in this world is not having self-esteem. If you don't love yourself, who will?
